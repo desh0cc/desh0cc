@@ -1,7 +1,7 @@
 # desh0cc
 
 - Currently jobless, hoeless etc.
-- Interested in Comp.Sci And learning Data Science, AI/ML.
+- Interested in Comp.Sci And learning Data Science, AI/ML so i can steal ya jobs too and we'll be together jobless 😊
 - Self taught and stupid
 
 ## Where to reach me
