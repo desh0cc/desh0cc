@@ -1,6 +1,6 @@
 # desh0cc
 
-17 y.o. 
+◤ 17 y.o. 
 - Currently jobless, hoeless etc.
 - Interested in Comp.Sci And learning Data Science, AI/ML so I can steal ya jobs and we'll
 be together jobless 😊
@@ -8,7 +8,7 @@ be together jobless 😊
 
 ## Where to reach me ???
 
-Usually just @deshocc or @desh0cc
+◤ Usually just @desh0cc
 - ✈️[Telegram](https://t.me/desh0cc)
 - 📫[Mail](desh0ccfuture@gmail.com)
 
