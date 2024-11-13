@@ -2,8 +2,8 @@
 
 ◤ 17 y.o. 
 - Currently jobless, hoeless etc.
-- Interested in Comp.Sci And learning Data Science, AI/ML so I can steal ya jobs and we'll
-be together jobless 😊
+- No one believes in my succeed (niether am I)
+- Interested in Comp.Sci And learning Data Science, AI/ML
 - Self taught and stupid
 
 ## Where to reach me ???
