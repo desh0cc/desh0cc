@@ -11,3 +11,5 @@
 ◤ Usually just @desh0cc
 - ✈️[Telegram](https://t.me/desh0cc)
 - 📫[Mail](desh0ccfuture@gmail.com)
+
+![desh0cc's GitHub stats](https://github-readme-stats.vercel.app/api?username=desh0cc&show_icons=true&theme=transparent)
