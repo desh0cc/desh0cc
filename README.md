@@ -2,7 +2,7 @@
 
 ◤ 17 y.o. 
 - Currently jobless, hoeless etc.
-- No one believes in my succeed (niether am I)
+- No one believes in my succeed
 - Interested in Comp.Sci And learning Data Science, AI/ML
 - Self taught and stupid
 
