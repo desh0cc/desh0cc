@@ -1,4 +1,4 @@
-I am a Python developer focused on ML, software development, and personal projects
+I am a Python developer focused on ML, software development, and building cool projects
 
 ### Targeted stack
 - python, git, sqlite3
